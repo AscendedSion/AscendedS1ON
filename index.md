@@ -43,15 +43,15 @@ AscendedSION#6190 .
 For the programs i use, (All of them are paid.)
 
 
-• [RijiN] (https://rijin.solutions)
+• [RijiN](https://steamcommunity.com/id/AscendedSION/)
 
 
 
-• [NullCoreCracked] (https://lithiumcheats.net)
+• [NullCoreCracked](https://lithiumcheats.net)
 
 
 
-• [LmaoBox] (https://lmaobox.net)
+• [LmaoBox](https://lmaobox.net)
 
 And for the DLL Injectors i use for such programs,
 https://www.mediafire.com/folder/tz20wq3e49f3t/injectors
