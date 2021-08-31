@@ -43,7 +43,7 @@ AscendedSION#6190 .
 For the programs i use, (All of them are paid.)
 
 
-• [RijiN](https://steamcommunity.com/id/AscendedSION/)
+• [RijiN](https://rijin.solutions)
 
 
 
