@@ -4,6 +4,7 @@
 Who am i?
 
 
+
 A Multiplayer game cheater.
 
 
@@ -32,4 +33,26 @@ If you are looking for them, my accounts are below.
 
 
 
-[Steam](https://steamcommunity.com/id/AscendedSION/) and AscendedSION#6190 .
+[Steam](https://steamcommunity.com/id/AscendedSION/) and 
+
+
+AscendedSION#6190 .
+
+
+
+For the programs i use, (All of them are paid.)
+
+
+• [RijiN] (https://rijin.solutions)
+
+
+
+• [NullCoreCracked] (https://lithiumcheats.net)
+
+
+
+• [LmaoBox] (https://lmaobox.net)
+
+And for the DLL Injectors i use for such programs,
+https://www.mediafire.com/folder/tz20wq3e49f3t/injectors
+
