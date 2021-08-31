@@ -54,5 +54,5 @@ For the programs i use, (All of them are paid.)
 • [LmaoBox](https://lmaobox.net)
 
 And for the DLL Injectors i use for such programs,
-https://www.mediafire.com/folder/tz20wq3e49f3t/injectors
+[Injectors](https://www.mediafire.com/folder/tz20wq3e49f3t/injectors)
 
