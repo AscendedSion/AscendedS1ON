@@ -16,7 +16,7 @@ You will usually find me on Phasmophobia, CSGO or Team Fortress 2.
 
 
 
-### What i do
+What i do
 
 
 
@@ -27,8 +27,7 @@ I use programs to kill people in multiplayer games (except from phasmophobia).
 
 
 
-**If you are looking for them, my accounts are below.**
-
+If you are looking for them, my accounts are below.
 
 
 
